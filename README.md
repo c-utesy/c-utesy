@@ -1,6 +1,6 @@
    <div align="center">
    
-[𓆩𓆪](https://www.youtube.com/watch?v=zTFD7fQORrI) ⠀ ⠀[꒰ঌ ໒꒱](https://www.youtube.com/watch?v=QJ7jJvYXOcY)
+[𓆩𓆪](https://open.spotify.com/track/7HhLws9ezC0G5rjyPAQA5B?si=tA393tOAQ1afrvbt28WPGg) ⠀ ⠀[꒰ঌ ໒꒱](https://www.youtube.com/watch?v=QJ7jJvYXOcY)
 
 <img width="536" height="467" alt="Image" src="https://github.com/user-attachments/assets/a44a80f3-12f4-4a16-bdce-c11cc6c1b397" />
 
