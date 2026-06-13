@@ -2,7 +2,7 @@
 
 𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int
 ####
-![alt](https://img.shields.io/badge/౨𝜚-1109-pink)
+![alt](https://img.shields.io/badge/౨𝜚-1109-F032C1)
 
 [𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/wmGgdXwg)　　◡◡　　[𝙋rnspage](https://en.pronouns.page/@C0lorfool)　　◡◡　　[新𝘽ook](https://colorfool.atabook.org)
 
