@@ -1,12 +1,11 @@
    <div align="center">
 
-𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int
 ####
-![alt](https://img.shields.io/badge/౨𝜚-1109-F032C1)
+![alt](https://img.shields.io/badge/౨𝜚-1,109-B96C9A)  ‎ ‎ᥬᩤ ིྀ꒷◡ ‎ ‎![alt](https://img.shields.io/badge/ᵖᵘᵖˢ-002-845784)
 
-[𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/wmGgdXwg)　　◡◡　　[𝙋rnspage](https://en.pronouns.page/@C0lorfool)　　◡◡　　[新𝘽ook](https://colorfool.atabook.org)
+[dⁱˢᶜᵒʳᵈ](https://discord.gg/wmGgdXwg)　　◡◡　　[prnsᵖᵃᵍᵉ](https://en.pronouns.page/@C0lorfool)　　◡◡　　[新ᵇᵒᵒᵏ](https://colorfool.atabook.org)
 
-<img width="500" alt="Image" src="https://github.com/user-attachments/assets/32c17773-7be5-493b-8644-00933ab70b73" />
+<img width="490" alt="Image" src="https://github.com/user-attachments/assets/07dd900a-f858-428c-89d3-ef624f2ed325" />
 
 ####
 
