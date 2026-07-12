@@ -1,8 +1,8 @@
    <div align="center">
-      
-####
-<img width="60" alt="Image" src="https://github.com/user-attachments/assets/cad1533c-12c1-4657-bdfb-ae3f482df96f" />　 　 ◡ 　 　![alt](https://img.shields.io/badge/┣▇▇▇═─-1,362-99AB35?style=for-the-badge&labelColor=FBF7C7)
+   
 
-$\text{\color{#72C7D6} ໒꒱ྀི། ̥}$　  　 [rentry](https://rentry.co/Bloominqton)　　[2nd rentry](https://rentry.co/littleBunnys)　　[新book](https://arrwz.atabook.org) 　  　𓈒  　  $\text{\color{#743B9F} ᘏ⑅ᣟᕬ}$
+<img width="30" alt="Image" src="https://github.com/user-attachments/assets/6e67a444-1c96-4854-a4a0-2c344c82ee77" />　  　 [rᵉⁿᵗʳʸ](https://rentry.co/20Au)　  　![badge](https://img.shields.io/badge/mizi_cest_♡-20/8-895281?labelColor=D9E8C7)  　  $\text{\color{#D191B9} ໒꒱ྀི། ̥}$
+
+
       
-<img width="436" alt="Image" src="https://github.com/user-attachments/assets/b0b0c5bb-407a-4887-9c10-c34f9d44b0d5" />
+<img width="400" alt="Image" src="https://github.com/user-attachments/assets/04a74639-94c4-4961-a003-1d71353243e4" />
