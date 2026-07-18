@@ -1,11 +1,13 @@
    <div align="center">
-
-$\text{\color{#D9F2CC}ᓚᘏᗢ }$ 　  　 ೀ 　　  ![badge](https://img.shields.io/badge/𝙈izi_cest_♡-20/8-895281?labelColor=D9E8C7&style=flat-square)
-
-<img width="30" alt="Image" src="https://github.com/user-attachments/assets/6e67a444-1c96-4854-a4a0-2c344c82ee77" />　  　 [ataᵇᵒᵒᵏ](https://c-utesy.atabook.org)  　  $\text{\color{#D191B9} ໒꒱ྀ }$
-
- 　  　 
       
+![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=mizi+cest+♡&labelColor=D9E8C7&color=895281)
+
+[新ᵇᵒᵒᵏ](https://c-utesy.atabook.org)  
+
+ 　　
+   
+$\text{\color{#D9F2CC}"Go}$ $\text{\color{#D775BF}on}$ $\text{\color{#BC5297}lose}$ $\text{\color{#8966AF}ur}$ $\text{\color{#8959A1}self}$ $\text{\color{#895281}control "}$   　   　 $\text{\color{#D191B9} ໒꒱ྀ }$
+
 <img width="300" alt="Image" src="https://github.com/user-attachments/assets/04a74639-94c4-4961-a003-1d71353243e4" />
 
 　  　 
