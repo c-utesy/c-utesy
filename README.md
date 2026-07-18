@@ -1,12 +1,12 @@
    <div align="center">
 
-$\text{\color{#D9F2CC}ᓚᘏᗢ}$ 　  　　  ![badge](https://img.shields.io/badge/mizi_cest_♡-20/8-895281?labelColor=D9E8C7&style=flat-square)
+$\text{\color{#D9F2CC}ᓚᘏᗢ }$ 　  　 ೀ 　　  ![badge](https://img.shields.io/badge/𝙈izi_cest_♡-20/8-895281?labelColor=D9E8C7&style=flat-square)
 
-<img width="30" alt="Image" src="https://github.com/user-attachments/assets/6e67a444-1c96-4854-a4a0-2c344c82ee77" />　  　 [rᵉⁿᵗʳʸ](https://rentry.co/Augst20) 　[ataᵇᵒᵒᵏ](https://c-utesy.atabook.org)  　  $\text{\color{#D191B9} ໒꒱ྀི། ̥}$
+<img width="30" alt="Image" src="https://github.com/user-attachments/assets/6e67a444-1c96-4854-a4a0-2c344c82ee77" />　  　 [ataᵇᵒᵒᵏ](https://c-utesy.atabook.org)  　  $\text{\color{#D191B9} ໒꒱ྀ }$
 
  　  　 
       
-<img width="400" alt="Image" src="https://github.com/user-attachments/assets/04a74639-94c4-4961-a003-1d71353243e4" />
+<img width="300" alt="Image" src="https://github.com/user-attachments/assets/04a74639-94c4-4961-a003-1d71353243e4" />
 
 　  　 
 
