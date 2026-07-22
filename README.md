@@ -2,7 +2,7 @@
       
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=mizi+cest+♡&labelColor=D9E8C7&color=895281)
 
-[新ᵇᵒᵒᵏ](https://c-utesy.atabook.org)  
+[新ᵇᵒᵒᵏ](https://c-utesy.atabook.org)    　 [renᵗʳʸ](https://rentry.co/jestereyes)
 
  　　
    
