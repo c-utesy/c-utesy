@@ -7,7 +7,7 @@
 <img width="210" alt="Image" src="https://github.com/user-attachments/assets/03dba7ef-a6c7-4913-943d-d4124d569a74" />
 
 ###
-[fluffle](https://fluffle.cc/sunshiner)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns](https://pronouns.cc/@voiding)
+[fluffle](https://fluffle.cc/voiding)    　 [Atabook](https://c-utesy.atabook.org)    　 [prns](https://pronouns.cc/@voiding)
 
 <img align=“left” width="199" alt="Image" src="https://github.com/user-attachments/assets/8e63fc76-52fc-4b4d-8c36-50f339ad48e1" />
 
