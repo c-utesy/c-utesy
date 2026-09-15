@@ -1,6 +1,4 @@
    <div align="center">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=20&duration=1000&pause=360&color=F7DAF2FF&center=true&vCenter=true&width=367&height=36&lines=The+real;real+*real*+me;isn%E2%80%99t+made+of+love+and+dreams%E2%80%A6;That%E2%80%99s+right+!;I%E2%80%99m+made+of+%E8%82%89+%5E%CF%89%5E)](https://git.io/typing-svg)
       
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=meow&labelColor=ffffff&color=CBDDE5)
 
