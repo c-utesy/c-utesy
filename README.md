@@ -10,7 +10,7 @@
 <img align=“left” width="199" alt="Image" src="https://github.com/user-attachments/assets/8e63fc76-52fc-4b4d-8c36-50f339ad48e1" />
 
 <details>
-<summary> $${\color{#F7C9E1}\text{ cuties }}$$ </summary><br>
+<summary> $${\color{#F7C9E1}\text{ moots lalala }}$$ </summary><br>
 
 [***maow***](https://github.com/VArtfultrust) ⁠ 　 [***nan***](https://github.com/Ilove-him) ⁠ 　 [***dozy***](https://github.com/OlgaSinxer)
 
@@ -18,35 +18,26 @@
 
 </details>
 <details>
-<summary> $\text{\color{#F7C9E1} pt info }$ </summary><br>
+<summary> $\text{\color{#F7C9E1} pt info ok}$ </summary><br>
 
-pt players iwec unl i know u
+always iwc unless (close) friends
 
-cuds always enc unl with moots
+cuds always enc lalala
 
-dont copy / inspo my skins unl were friends + i gave u perms
+dont copy / inspo my skins unless i gave u permission
 
-im offtab / afk like most of the time so w2i(uf) always ok ?
+im offtab / afk like most of the time so w2i always unl friends
 
-i block / hide if i dont like u + i block freely. Dont take it personal
+i block / hide if i dont like u + i block freely ok
 
-###
-<details>
-<summary> $\text{\color{#CBDDE5} dni }$ </summary><br>
+if u use that one neck hack and say “woman anatomy btw” dni pls ure weird asf
 
-if u use tut / pinterest skins without creds.
-
-“high” insert char name skin / “irl” skin
-
-u dont like me / any of my friends.
-
-“fem anatomy btw” i dont give a fuck ITS A PONY GAME 🫩🫩
-
+if u dont like me or my friends get off my page lol
 </details>
 
 </details>
 <details>
-<summary> $\text{\color{#F7C9E1} ㆍωㆍ }$ </summary><br>
+<summary> $\text{\color{#F7C9E1} ㆍωㆍ !}$ </summary><br>
 
 <img width="200" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
