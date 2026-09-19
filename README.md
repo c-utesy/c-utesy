@@ -20,19 +20,21 @@
 <details>
 <summary> $\text{\color{#F7C9E1} pt info ok}$ </summary><br>
 
+read *fluffle + prns cc* for basic info.
+
 always iwc unless (close) friends
 
 cuds always enc lalala
 
-dont copy / inspo my skins unless i gave u permission
+dont copy / inspo my skins unless i gave you permission
 
 im offtab / afk like most of the time so w2i always unl friends
 
-i block / hide if i dont like u + i block freely ok
+i block / hide if i dont like you, i block freely ok
 
-if u use that one neck hack and say “woman anatomy btw” dni pls ure weird asf
+*no dni*, unless youre blocked
 
-if u dont like me or my friends get off my page lol
+if you dont like me or my friends get off my page lol
 </details>
 
 </details>
