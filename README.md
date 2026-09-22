@@ -41,6 +41,9 @@ if you dont like me or my friends get off my page lol
 <details>
 <summary> $\text{\color{#F7C9E1} ㆍωㆍ !}$ </summary><br>
 
+<img width="670" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
+
+######
 <img width="200" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
 ######
