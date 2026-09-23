@@ -43,7 +43,11 @@ if you dont like me or my friends get off my page lol
 
 <img width="670" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
 
-######
+<img width="670" alt="Image" src="https://github.com/user-attachments/assets/d1631ba0-c787-4d16-9589-a8ddcbffb758" />
+
+:3
+
+##
 <img width="200" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
 ######
@@ -59,6 +63,6 @@ if you dont like me or my friends get off my page lol
 
 <img width="300" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
 
-i really love u guys ok? ok
+the group
 
 </details>
