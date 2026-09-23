@@ -43,7 +43,7 @@ if you dont like me or my friends get off my page lol
 
 <img width="670" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
 
-<img width="670" alt="Image" src="https://github.com/user-attachments/assets/d1631ba0-c787-4d16-9589-a8ddcbffb758" />
+<img width="670" alt="Image" src="https://github.com/user-attachments/assets/ae11364b-a1c2-4bbf-8806-bde9be8714f7" />
 
 :3
 
