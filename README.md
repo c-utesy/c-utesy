@@ -51,6 +51,9 @@ if you dont like me or my friends get off my page lol
 <img width="200" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
 ######
+<img width="367" alt="Image" src="https://github.com/user-attachments/assets/c514a3db-747f-4f2b-ab65-78120d812aa5" />
+
+######
 <img width="670" alt="Image" src="https://github.com/user-attachments/assets/f31107a6-0921-4f31-a76d-deb66218fd7d" />
 
 ######
@@ -63,6 +66,6 @@ if you dont like me or my friends get off my page lol
 
 <img width="300" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
 
-the group
+the group lelele
 
 </details>
