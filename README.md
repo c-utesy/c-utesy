@@ -38,7 +38,7 @@ w2i, dont always expect responses
 </details>
 
 <details>
-<summary> $\text{\color{#FFD9E6FF} ㆍωㆍ !}$ </summary><br>
+<summary> $\text{\color{#FFD9E6FF}ㆍωㆍ}$ </summary><br>
 
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
 
