@@ -1,71 +1,71 @@
    <div align="center">
       
-![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=lol&labelColor=ffffff&color=CBDDE5)
 
-<img width="210" alt="Image" src="https://github.com/user-attachments/assets/03dba7ef-a6c7-4913-943d-d4124d569a74" />
+![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=stalkers&labelColor=FFF3F8FF&color=705E45AC)
+
+<img width="167" alt="Image" src="https://github.com/user-attachments/assets/c167b095-332f-44fa-9895-b7a4ee1a380c" />
 
 ###
 [![badge](https://img.shields.io/badge/straw-white?style=for-the-badge)](https://vnd.straw.page)  [![](https://img.shields.io/badge/新book-white?style=for-the-badge)](https://viet.atabook.org)  [![](https://img.shields.io/badge/prey.lol-white?style=for-the-badge)](https://prey.lol/@funhouse)
 
-<img align=“left” width="199" alt="Image" src="https://github.com/user-attachments/assets/8e63fc76-52fc-4b4d-8c36-50f339ad48e1" />
+<img width="145" alt="Image" src="https://github.com/user-attachments/assets/01db1c88-8fbb-48f1-a91f-7caf950fbdac" />
 
 <details>
-<summary> $${\color{#F7C9E1}\text{ moots lalala }}$$ </summary><br>
+<summary> $${\color{#F7C9E1}\text{ pawns }}$$ </summary><br>
 
 [***maow***](https://github.com/VArtfultrust) ⁠ 　 [***nan***](https://github.com/Ilove-him) ⁠ 　 [***dozy***](https://github.com/OlgaSinxer)
 
-[***kitty***](https://github.com/pawfectt) ⁠ 　 [coal](https://github.com/coalcarolynne) ⁠ 　 [yekita](https://github.com/ppawncakezz) ⁠ 　 [gatita](https://github.com/Gatita-here) ⁠ 　 [crumb](https://github.com/cupt6ast) ⁠ 　 [shellzy](https://github.com/ShellzyFossilzianz) ⁠ 　 [spoke](https://github.com/spokeispeak) ⁠ 　 [eddi](https://github.com/puppyfies)
+[***kitty***](https://github.com/pawfectt) ⁠ 　 [coal](https://github.com/coalcarolynne) ⁠ 　 [yekita](https://github.com/ppawncakez)
+
+[gatita](https://github.com/Gatita-here) ⁠ 　 [crumb](https://github.com/cupt6ast) ⁠ 　 [shellzy](https://github.com/ShellzyFossilzianz)
+
+[eddi](https://github.com/puppyfies) ⁠ 　 [spoke](https://github.com/spokeispeak)
 
 </details>
 <details>
-<summary> $\text{\color{#F7C9E1} pt info ok}$ </summary><br>
+<summary> $\text{\color{#FFD9E6FF} info }$ </summary><br>
 
-read my *strawpage* for basic info.
+Moe or nyan, do not call me **pow**
 
-always iwc unless (close) friends
+they s/he *only*, thank you.
 
-cuds always enc lalala
+*no dni*, unless i blocked you
 
-dont copy / inspo my skins unless i gave you permission
+dont inspo or copy my skins. ^_^
 
-im offtab / afk like most of the time so w2i always unl friends
-
-i block / hide if i dont like you, i block freely ok
-
-*no dni*, unless youre blocked
-
-if you dont like me or my friends get off my page lol
-</details>
+w2i, dont always expect responses
 
 </details>
+
 <details>
-<summary> $\text{\color{#F7C9E1} ㆍωㆍ !}$ </summary><br>
+<summary> $\text{\color{#FFD9E6FF} ㆍωㆍ !}$ </summary><br>
 
-<img width="670" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
+<img width="567" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
 
-<img width="670" alt="Image" src="https://github.com/user-attachments/assets/ae11364b-a1c2-4bbf-8806-bde9be8714f7" />
+<img width="567" alt="Image" src="https://github.com/user-attachments/assets/ae11364b-a1c2-4bbf-8806-bde9be8714f7" />
 
-:3
+[:3](https://github.com/pawfectt)
 
 ##
-<img width="200" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
+<img width="267" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
 ######
-<img width="367" alt="Image" src="https://github.com/user-attachments/assets/c514a3db-747f-4f2b-ab65-78120d812aa5" />
+<img width="567" alt="Image" src="https://github.com/user-attachments/assets/c514a3db-747f-4f2b-ab65-78120d812aa5" />
 
 ######
-<img width="670" alt="Image" src="https://github.com/user-attachments/assets/f31107a6-0921-4f31-a76d-deb66218fd7d" />
+<img width="567" alt="Image" src="https://github.com/user-attachments/assets/f31107a6-0921-4f31-a76d-deb66218fd7d" />
 
 ######
-<img width="360" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
+<img width="567" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 
 #####
-<img width="367" alt="Image" src="https://github.com/user-attachments/assets/cbe6d100-7246-4cad-ad3e-6232811a2a6f" />
+<img width="567" alt="Image" src="https://github.com/user-attachments/assets/cbe6d100-7246-4cad-ad3e-6232811a2a6f" />
 
-###
+##
+<img width="467" alt="Image" src="https://github.com/user-attachments/assets/8dc14519-219b-452a-8fe5-4ea82aaa61ae" />
 
 <img width="300" alt="Image" src="https://github.com/user-attachments/assets/44fe1823-6052-4549-a6fe-fa8b9928a24f" />
 
-the group lelele
+i love my friends ok
 
 </details>
