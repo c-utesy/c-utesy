@@ -5,7 +5,7 @@
 <img width="210" alt="Image" src="https://github.com/user-attachments/assets/03dba7ef-a6c7-4913-943d-d4124d569a74" />
 
 ###
-[![badge](https://img.shields.io/badge/straw-white?style=for-the-badge)](https://vnd.straw.page)  [![](https://img.shields.io/badge/新book-white?style=for-the-badge)](https://c-utesy.atabook.org)  [![](https://img.shields.io/badge/prey.lol-white?style=for-the-badge)](https://prey.lol/@funhouse)
+[![badge](https://img.shields.io/badge/straw-white?style=for-the-badge)](https://vnd.straw.page)  [![](https://img.shields.io/badge/新book-white?style=for-the-badge)](https://viet.atabook.org)  [![](https://img.shields.io/badge/prey.lol-white?style=for-the-badge)](https://prey.lol/@funhouse)
 
 <img align=“left” width="199" alt="Image" src="https://github.com/user-attachments/assets/8e63fc76-52fc-4b4d-8c36-50f339ad48e1" />
 
