@@ -45,21 +45,17 @@ w2i, dont always expect responses
 
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/ae11364b-a1c2-4bbf-8806-bde9be8714f7" />
 
-[:3](https://github.com/pawfectt)
-
 ##
+<img width="568" height="121" alt="Image" src="https://github.com/user-attachments/assets/7dee5cc7-6c9e-4323-b531-6d053a5d7ff2" />
+
 <img width="267" alt="Image" src="https://github.com/user-attachments/assets/612ab92c-b0b4-427f-b771-77ea4eb46822" />
 
-######
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/c514a3db-747f-4f2b-ab65-78120d812aa5" />
 
-######
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/f31107a6-0921-4f31-a76d-deb66218fd7d" />
 
-######
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 
-#####
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/cbe6d100-7246-4cad-ad3e-6232811a2a6f" />
 
 ##
