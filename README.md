@@ -26,13 +26,13 @@
 <details>
 <summary> $\text{\color{#FFD9E6FF} info }$ </summary><br>
 
-Moe or nyan, do not call me **pow**
+Moe or homura / ask.
 
-they s/he *only*, thank you.
+they s/he only, thank you
 
 *no dni*, unless i blocked you
 
-dont inspo or copy my skins. ^_^
+dont inspo or copy my skins <_<
 
 w2i, dont always expect responses
 
