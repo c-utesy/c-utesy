@@ -9,7 +9,7 @@
 <details>
 <summary> $${\color{#AA3737}\text{ links }}$$ </summary><br>
 
-[straw](https://vnd.straw.page)   [新book](viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
+[straw](https://vnd.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
 <summary> $${\color{#AA3737}\text{ pawns }}$$ </summary><br>
