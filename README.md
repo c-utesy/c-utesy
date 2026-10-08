@@ -7,6 +7,11 @@
 
 ###
 <details>
+<summary> $${\color{#AA3737}\text{ links }}$$ </summary><br>
+
+[straw](https://vnd.straw.page)   [新book](viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
+
+<details>
 <summary> $${\color{#AA3737}\text{ pawns }}$$ </summary><br>
 
 [my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
@@ -58,9 +63,3 @@ w2i, dont always expect responses
 
 <img width="467" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 </details>
-
-<img width="45" alt="Image" src="https://github.com/user-attachments/assets/0d13dfd0-5f28-4ab0-8c66-a3d02aebc559" />
-<details>
-<summary> $${\color{#AA3737}\text{ links }}$$ </summary><br>
-
-[straw](https://vnd.straw.page)   [新book](viet.atabook.org) [fluffle](https://fluffle.cc/bozo)
