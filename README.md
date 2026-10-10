@@ -17,7 +17,7 @@
 [my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
 
 ###
-[***cup***](https://github.com/pawfectt) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakez) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
+[***cup***](https://github.com/pawfectt) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
 [eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
 
