@@ -27,7 +27,7 @@
 
 Moe or homura / ask.
 
-they s/he only, thank you
+they s/he only, it if close
 
 *no dni*, unless i blocked you
 
