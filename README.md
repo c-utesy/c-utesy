@@ -1,18 +1,33 @@
    <div align="center">
       
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=stalkers&labelColor=ffffff&color=93D9E1FF)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=⚞^..^⚟&labelColor=ffffff&color=000000)
 
-<img width="136" alt="Image" src="https://github.com/user-attachments/assets/762a0c3c-75b3-4719-82ad-9ea50cc42972" />
+<img width="167" alt="Image" src="https://github.com/user-attachments/assets/e759b291-636b-466d-a792-a781a85c03f2" />
 
 ###
 <details>
-<summary> $${\color{#AA3737}\text{ links }}$$ </summary><br>
+<summary> info </summary><br>
+
+Moe or homura / ask
+
+they s/he only, it if close
+
+-18, no dni unless i blocked you
+
+dont inspo or copy my skins <_<
+
+w2i, dont always expect responses
+
+</details>
+
+<details>
+<summary> links </summary><br>
 
 [straw](https://vnd.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
-<summary> $${\color{#AA3737}\text{ pawns }}$$ </summary><br>
+<summary> pawns </summary><br>
 
 [my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
 
@@ -22,23 +37,9 @@
 [eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
 
 </details>
-<details>
-<summary> $\text{\color{#AA3737} my info }$ </summary><br>
-
-Moe or homura / ask.
-
-they s/he only, it if close
-
-*no dni*, unless i blocked you
-
-dont inspo or copy my skins <_<
-
-w2i, dont always expect responses
-
-</details>
 
 <details>
-<summary> $\text{\color{#AA3737}nominations}$ </summary><br>
+<summary> nominations </summary><br>
 
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
 
@@ -48,7 +49,7 @@ w2i, dont always expect responses
 <img width="286" height="100" alt="Image" src="https://github.com/user-attachments/assets/0f022982-ca61-4830-9c5c-d7eaac9134aa" />
 
 ######
-<img width="1309" height="75" alt="Image" src="https://github.com/user-attachments/assets/685ebf9a-0302-46ea-9aec-9b81ab526d06" />
+<img width="670" alt="Image" src="https://github.com/user-attachments/assets/685ebf9a-0302-46ea-9aec-9b81ab526d06" />
 
 <img width="400" height="67" alt="Image" src="https://github.com/user-attachments/assets/7dee5cc7-6c9e-4323-b531-6d053a5d7ff2" />
 
