@@ -9,32 +9,32 @@
 <details>
 <summary> info </summary><br>
 
-Moe or homura / ask
+<sub>Moe or homura / ask <br>
 
-they s/he only, it if close
+<sub>they s/he only, it if close
 
--18, no dni unless i blocked you
+<sub> -18, no dni unless i blocked you
 
-dont inspo or copy my skins <_<
+<sub> inspo or copy my skins <_< <br>
 
-w2i, dont always expect responses
+<sub>w2i, dont always expect responses <br>
 
 </details>
 
 <details>
 <summary> links </summary><br>
 
-[straw](https://vnd.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
+<sub>[straw](https://vnd.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
 <summary> pawns </summary><br>
 
-[my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
+<sub>[my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
 
-###
-[***cup***](https://github.com/pawfectt) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
+######
+<sub>[***cup***](https://github.com/pawfectt) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
-[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
+<sub>[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
 
 </details>
 
