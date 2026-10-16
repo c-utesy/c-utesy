@@ -8,27 +8,27 @@
 ###
 <details>
 <summary> info </summary><br>
-
-<sub>Moe or homura / ask <br>
+   
+<sub>Moe, ask for other names
 
 <sub>they s/he only, it if close
 
-<sub> -18, no dni unless i blocked you
+<sub>-18, no dni unless i blocked you
 
-<sub> inspo or copy my skins <_< <br>
+<sub> dont inspo or copy my skins <_<
 
-<sub>w2i, dont always expect responses <br>
+<sub>w2i, dont always expect responses
 
 </details>
 
 <details>
 <summary> links </summary><br>
-
+   
 <sub>[straw](https://vnd.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
 <summary> pawns </summary><br>
-
+   
 <sub>[my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
 
 ######
@@ -40,7 +40,6 @@
 
 <details>
 <summary> nominations </summary><br>
-
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
 
 <img width="567" alt="Image" src="https://github.com/user-attachments/assets/ae11364b-a1c2-4bbf-8806-bde9be8714f7" />
