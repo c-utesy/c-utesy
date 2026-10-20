@@ -24,12 +24,12 @@
 <details>
 <summary> links </summary><br>
    
-<sub>[straw](https://vnd.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
+<sub>[straw](https://shrinking.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
 <summary> pawns </summary><br>
    
-<sub>[my](https://github.com/VArtfultrust) [group](https://github.com/Ilove-him) [lol](https://github.com/OlgaSinxer)
+<sub>[my](https://github.com/VArtfultrust) [group](https://github.com/midnightstati) [lol](https://github.com/OlgaSinxer)
 
 ######
 <sub>[***cup***](https://github.com/pawfectt) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
