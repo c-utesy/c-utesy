@@ -1,6 +1,17 @@
    <div align="center">
 
-zlp DNNNNIIIIIII can u genuinely stop stalking my group
+<details>
+<summary> </summary><br>
+<img width="400" alt="Image" src="https://github.com/user-attachments/assets/0a3b15c7-b178-4afb-b96d-0f4bc498d1b9" />
+
+<img width="500" alt="Image" src="https://github.com/user-attachments/assets/46d04970-7535-4195-a0dd-8ff36ddbe808" />
+
+<img width="500" alt="Image" src="https://github.com/user-attachments/assets/e0be053b-3aae-4755-bbc3-e610b86e089f" />
+
+<img width="500" alt="Image" src="https://github.com/user-attachments/assets/cdb8b66b-26aa-4f21-bbdf-6bc2dc177b66" />
+
+[zlp](https://github.com/call-me-ZLP) dni why are you following everyone mentioned in my bio lmaoo
+</details>
 
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=⚞^..^⚟&labelColor=ffffff&color=000000)
 
