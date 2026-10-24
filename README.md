@@ -35,7 +35,7 @@
 <sub>[my](https://github.com/VArtfultrust) [group](https://github.com/midnightstati) [lol](https://github.com/OlgaSinxer)
 
 ######
-<sub>[***cup***](https://github.com/pawfectt) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
+<sub>[***cup***](https://github.com/nyangell) ⁠  [coal](https://github.com/coalcarolynne) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
 <sub>[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
 
