@@ -1,9 +1,5 @@
    <div align="center">
 
-
-[zlp](https://github.com/call-me-ZLP) dni
-</details>
-
 ![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=⚞^..^⚟&labelColor=ffffff&color=000000)
 
 <img width="167" alt="Image" src="https://github.com/user-attachments/assets/e759b291-636b-466d-a792-a781a85c03f2" />
@@ -11,16 +7,14 @@
 ###
 <details>
 <summary> info </summary><br>
-   
-<sub>Moe, ask for other names
 
-<sub>they s/he only, it if close
+<sub>-18, no dni beside TCCers, T.r.a.s.h, ++
 
-<sub>-18, no dni unless i blocked you
+<sub> inspo / copy arent allowed im not sorry
 
-<sub> dont inspo or copy my skins <_<
+<sub>dont always expect responses from me
 
-<sub>w2i, dont always expect responses
+<sub>idrgaf if youre a bb just know that i dont fw #bbtwt ok
 
 </details>
 
@@ -32,9 +26,6 @@
 <details>
 <summary> pawns </summary><br>
    
-<sub>[my](https://github.com/VArtfultrust) [group](https://github.com/midnightstati) [lol](https://github.com/OlgaSinxer)
-
-######
 <sub>[***cup***](https://github.com/nyangell) ⁠  [coal](https://github.com/snowyrescue) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
 <sub>[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
