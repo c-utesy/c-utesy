@@ -8,20 +8,20 @@
 <details>
 <summary> info </summary><br>
 
+<sub>they, it if close. im sayaka irl ok
+
 <sub>-18, no dni beside TCCers, T.r.a.s.h, ++
 
 <sub> inspo / copy arent allowed im not sorry
 
 <sub>dont always expect responses from me
 
-<sub>idrgaf if youre a bb just know that i dont fw #bbtwt ok
-
-</details>
+<sub>i dont fw shedtwt / bbtwt. if youre a bb idrgaf tho </details>
 
 <details>
 <summary> links </summary><br>
    
-<sub>[straw](https://shrinking.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
+<sub>[strawpage](https://shrinking.straw.page) ﹒ [新book](https://viet.atabook.org) ﹒ [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
 <summary><img width="36" alt="Image" src="https://github.com/user-attachments/assets/f17d0d8b-2f97-4c40-af31-b5d782f53c90"/></summary><br>
