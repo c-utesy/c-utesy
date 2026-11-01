@@ -1,8 +1,8 @@
    <div align="center">
 
-![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=⚞^..^⚟&labelColor=ffffff&color=000000)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/c-utesy?label=⚞^..^⚟&labelColor=79A8C4&color=ffffff)
 
-<img width="167" alt="Image" src="https://github.com/user-attachments/assets/e759b291-636b-466d-a792-a781a85c03f2" />
+<img width="90" height="90" alt="Image" src="https://github.com/user-attachments/assets/0919e68f-59f3-4e98-bcde-ee782cf1608c" />
 
 ###
 <details>
@@ -24,38 +24,10 @@
 <sub>[straw](https://shrinking.straw.page)   [新book](https://viet.atabook.org) [fluffle](https://fluffle.cc/bozo) </details>
 
 <details>
-<summary> pawns </summary><br>
+<summary><img width="50" height="50" alt="Image" src="https://github.com/user-attachments/assets/f17d0d8b-2f97-4c40-af31-b5d782f53c90"/></summary><br>
    
 <sub>[***cup***](https://github.com/nyangell) ⁠  [coal](https://github.com/snowyrescue) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
 <sub>[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
 
-</details>
-
-<details>
-<summary> nominations </summary><br>
-<img width="567" alt="Image" src="https://github.com/user-attachments/assets/7a104d5a-e9ae-4780-93e2-e0534908bf6a" />
-
-<img width="567" alt="Image" src="https://github.com/user-attachments/assets/ae11364b-a1c2-4bbf-8806-bde9be8714f7" />
-
-##
-<img width="286" height="100" alt="Image" src="https://github.com/user-attachments/assets/0f022982-ca61-4830-9c5c-d7eaac9134aa" />
-
-######
-<img width="670" alt="Image" src="https://github.com/user-attachments/assets/685ebf9a-0302-46ea-9aec-9b81ab526d06" />
-
-<img width="400" height="67" alt="Image" src="https://github.com/user-attachments/assets/7dee5cc7-6c9e-4323-b531-6d053a5d7ff2" />
-
-<img width="670" alt="Image" src="https://github.com/user-attachments/assets/89863eea-9695-47f6-bdbd-2f5b99266ca6" />
-
-<img width="567" alt="Image" src="https://github.com/user-attachments/assets/c514a3db-747f-4f2b-ab65-78120d812aa5" />
-
-<img width="567" alt="Image" src="https://github.com/user-attachments/assets/f31107a6-0921-4f31-a76d-deb66218fd7d" />
-
-<img width="567" alt="Image" src="https://github.com/user-attachments/assets/cbe6d100-7246-4cad-ad3e-6232811a2a6f" />
-
-##
-<img width="400" alt="Image" src="https://github.com/user-attachments/assets/8dc14519-219b-452a-8fe5-4ea82aaa61ae" />
-
-<img width="467" alt="Image" src="https://github.com/user-attachments/assets/7c3a8d3a-e0c2-4b53-b8ad-b39a0ef28cc2" />
 </details>
