@@ -25,9 +25,10 @@
 
 <details>
 <summary><img width="36" alt="Image" src="https://github.com/user-attachments/assets/f17d0d8b-2f97-4c40-af31-b5d782f53c90"/></summary><br>
+
+<sub>[maow](https://github.com/vartfultrust) ⁠  [nan](https://github.com/midnightstati) ⁠  [sinx](https://github.com/olgasinxer)
    
 <sub>[***cup***](https://github.com/nyangell) ⁠  [coal](https://github.com/snowyrescue) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
-<sub>[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [spoke](https://github.com/spokeispeak) ⁠  [gatita](https://github.com/Gatita-here)
-
+<sub>[eddi](https://github.com/puppyfies) ⁠  [crumb](https://github.com/cupt6ast) ⁠  [gatita](https://github.com/Gatita-here) ⁠  [spoke](https://github.com/spokeispeak)
 </details>
