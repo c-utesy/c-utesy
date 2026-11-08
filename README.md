@@ -30,7 +30,7 @@
 
 <sub>[maow](https://github.com/vartfultrust) ⁠  [nan](https://github.com/midnightstati) ⁠  [sinx](https://github.com/olgasinxer)
    
-<sub>[cup](https://github.com/nyangell) hai ilyt ok ^_^
+<sub>[cup](https://github.com/kittiest) hai ilyt ok ^_^
 
 <sub>[coal](https://github.com/snowyrescue) ⁠  [yekita](https://github.com/ppawncakezz) ⁠  [shellzy](https://github.com/ShellzyFossilzianz)
 
