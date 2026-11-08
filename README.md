@@ -23,7 +23,7 @@
 <details>
 <summary> links </summary><br>
    
-<sub>[strawpage](https://shrinking.straw.page) ﹒ [新book](https://viet.atabook.org) ﹒ [fluffle](https://fluffle.cc/bozo) </details>
+<sub>[strawpage](https://shrinking.straw.page) ﹒ [新book](https://gif.atabook.org) ﹒ [fluffle](https://fluffle.cc/competitive) </details>
 
 <details>
 <summary><img width="36" alt="Image" src="https://github.com/user-attachments/assets/f17d0d8b-2f97-4c40-af31-b5d782f53c90"/></summary><br>
