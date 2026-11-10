@@ -18,7 +18,7 @@
 
 <sub>im a proshipper & profic. dni if that makes you uncomf
 
-<sub>PROship/fic ≠ DARKship. do research first b4 you harass me, ok?</details>
+<sub>PROship/fic ≠ DARKship. learn the difference first before calling me a dark, ok?</details>
 
 <details>
 <summary> links </summary><br>
