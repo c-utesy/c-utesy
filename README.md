@@ -41,4 +41,6 @@
 <summary> ♥ </summary><br>
 
 <img width="670" alt="IMG_8786" src="https://github.com/user-attachments/assets/13d2fb1a-26a4-4d81-a5dd-5d114c39d56c" />
-<img width="670" alt="IMG_8785" src="https://github.com/user-attachments/assets/984d1112-74fc-4d38-ace8-893c792c2ca3" /></details>
+<img width="670" alt="IMG_8785" src="https://github.com/user-attachments/assets/984d1112-74fc-4d38-ace8-893c792c2ca3" />
+
+hello boi ily too 🙂🩷🩷 /p</details>
