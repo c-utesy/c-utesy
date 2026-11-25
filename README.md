@@ -11,4 +11,4 @@
 <div><sub>mentally unwell, iwec</sub>
 
    ###
-<sub>[strawpage](https://shrinking.straw.page) ﹒ [新book](https://gif.atabook.org) ﹒ [fluffle](https://fluffle.cc/bozo)
+<sub>[strawpage](https://shrinking.straw.page) ﹒ [fluffle](https://fluffle.cc/bozo)
