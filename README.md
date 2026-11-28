@@ -11,4 +11,4 @@
 <div><sub>mentally unwell, iwec</sub>
 
    ###
-<sub>[strawpage]() ﹒ [fluffle](https://fluffle.cc/ew)
+<sub>[straw](https://regardless.straw.page) ﹒ [fluffle](https://fluffle.cc/ew)
